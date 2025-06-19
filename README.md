@@ -49,6 +49,6 @@ Key features:
 
 I’m open to internships, mentorship, and entry-level opportunities in the **Cybersecurity** or **IT Security** space. Let’s collaborate and grow together!
 
-📧 **Email:** [manassehtek@gmail.com](mailto:manassehtek@gmail.com)
+📧 **Email:** [timtek9@gmail.com](mailto:timtek9@gmail.com)
 
 🔗 **LinkedIn:** [linkedin.com/in/tek-m-1245b92bb](https://www.linkedin.com/in/tek-m-1245b92bb)
